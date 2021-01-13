@@ -1,1 +1,1 @@
-# learn-and-practice-python-techniques
+just noob repo nothing special here\
